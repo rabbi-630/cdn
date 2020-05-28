@@ -1,1 +1,1 @@
-www.nguyentinhblog.com
+www.thugsofbd.com
